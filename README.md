@@ -13,21 +13,16 @@ Generative Stop Motion new images produced through the source of photography pro
 .
 [![Watch the video](https://wearetheartmakers.com/wp-content/uploads/2022/10/demirFX3.gif)](https://youtu.be/j3y20vm7Km0).[![Watch the video](https://wearetheartmakers.com/us/images/2022/11/01/D0EEF632-70AF-4835-A269-E18EE0461691.gif)](https://youtu.be/j3y20vm7Km0)
 
-7
-[![Watch the video](https://wearetheartmakers.com/wp-content/uploads/2022/10/clowninroom.gif)](https://youtu.be/j3y20vm7Km0)
+.
+[![Watch the video](https://wearetheartmakers.com/wp-content/uploads/2022/10/clowninroom.gif)](https://youtu.be/j3y20vm7Km0).[![Watch the video](https://wearetheartmakers.com/img/hat-boy-rasta.gif)](https://youtu.be/j3y20vm7Km0)
 
-8
-[![Watch the video](https://wearetheartmakers.com/img/hat-boy-rasta.gif)](https://youtu.be/j3y20vm7Km0)
 
-9
 [![Watch the video](https://wearetheartmakers.com/img/beard-boy.gif)](https://youtu.be/j3y20vm7Km0)
 
-10
-[![Watch the video](https://wearetheartmakers.com/img/pose-boy.gif)](https://youtu.be/j3y20vm7Km0)
-11
-[![Watch the video](https://wearetheartmakers.com/img/polarait-demir.gif)](https://youtu.be/j3y20vm7Km0)
+.
+[![Watch the video](https://wearetheartmakers.com/img/pose-boy.gif)](https://youtu.be/j3y20vm7Km0).[![Watch the video](https://wearetheartmakers.com/img/polarait-demir.gif)](https://youtu.be/j3y20vm7Km0)
 
-12
+.
 [![Watch the video](https://wearetheartmakers.com/wp-content/uploads/2022/10/watam-demir.gif)](https://youtu.be/j3y20vm7Km0)
 
 
