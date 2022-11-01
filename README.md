@@ -2,10 +2,6 @@
 Generative Stop Motion new images produced through the source of photography processed with artificial intelligence Stabil Diffusion 
 
 
-
-
-[![Watch the video](https://wearetheartmakers.com/wp-content/uploads/2022/10/demir-FX2.gif)](https://youtu.be/j3y20vm7Km0)
-
 [![Watch the video](https://wearetheartmakers.com/us/images/2022/11/01/2D3F7ED3-5FFC-4312-8044-B9FEB4762D6B.gif)](https://youtu.be/j3y20vm7Km0)
 
 
